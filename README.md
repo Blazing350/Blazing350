@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-#✨ First time using Github. Shits weird man.
-
-#(⊙_⊙;)
+-✨ First time using Github. Shits weird man.
+-🎸 
+(⊙_⊙;)
